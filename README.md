@@ -26,3 +26,5 @@
 No fim, o desafio _não deve se tornar uma obrigação_, apenas uma ferramenta para te auxiliar na sua jornada de aprendizado. :wink:
 Refletir sobre as hard skills e soft skills que você desenvolveu durante o desafio é uma ótima forma de levar esse conhecimento consigo para sua carreira.
 **E, por último...** repita o desafio sempre que sentir necessário. :alien: :vulcan_salute:
+
+Por: Nathiely Saraiva
